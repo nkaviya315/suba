@@ -1,1 +1,1 @@
-Personal assistance for senior citizens
+Personal assistance for senior who are self reliant
